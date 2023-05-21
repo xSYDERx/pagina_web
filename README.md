@@ -1,0 +1,1 @@
+¡Bienvenido/a a la página web oficial del club de buceo CBS GlupGlup! Aquí encontrarás toda la información que necesitas sobre nuestro club de buceo, nuestras actividades y cómo unirte a nosotros en emocionantes aventuras submarinas. Sumérgete en las profundidades con nosotros y descubre un mundo submarino fascinante.
